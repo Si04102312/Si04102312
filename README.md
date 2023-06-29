@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Si04102312
 - 👀 I’m interested in ofer offer vacancies for Developers
-- 🌱 I am a Personal MKT monitor in the best developer training course DEV QUEST - DOUBLE DEV.
+- 🌱 I am a Personal MKT monitora in the best developer training course DEV QUEST - DOUBLE DEV.
 - 💞️ I’m looking to collaborate on offering vacancies so that those who are looking for their "yes" have opportunities.
 - 📫 How to reach me by email simonesommarivavieira@gmail.com.
 
